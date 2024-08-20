@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @davi314159
+- 👀 I’m interested in mathematics
+- 🌱 I’m currently learning lots of mathematics
+- 💞️ I’m looking to collaborate on mathematical projects, idealy
+- 📫 How to reach me: al.davi.nunes@impatech.org.br or davipic2021@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: none
